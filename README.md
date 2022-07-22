@@ -1,1 +1,1 @@
-# scenice_city_summit_2022
+# scenic_city_summit_2022
